@@ -1,2 +1,7 @@
 # hello-world
-Just another repository
+Hi Guys!!
+
+Im Arun..I Love playing games and love 
+watching Hollywood movies rather than 
+Kollywood movies.
+
